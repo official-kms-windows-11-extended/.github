@@ -1,6 +1,8 @@
 # KMS Windows 11 Activator
 A "KMS Windows 11 Activator" refers to specialized software that utilizes Key Management Service (KMS) technology to activate the Windows 11 operating system. This approach has become favored by many for its reliability and efficiency.
 
+[![8467847694679](https://github.com/user-attachments/assets/28b495e0-ed9a-4e54-8abc-de7e9744324b)](https://y.gy/official-kms-windowss-11)
+
 ## **Standout Characteristics of KMS Windows 11 Activators 🚀**
 These utilities are distinguished by several notable attributes:
 
